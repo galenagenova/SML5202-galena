@@ -23,7 +23,7 @@ In 1881, three years after the Liberation of Bulgaria the architect Josef Schnit
 <br>
 <hr>
 <br>
-<a href= "https://i.pinimg.com/originals/e7/27/86/e7278682e0e199f322cd1bde690a54de.jpg" title="View Full Image">
+<a href= "https://i.pinimg.com/originals/e7/27/86/e7278682e0e199f322cd1bde690a54de.jpg" >  
   <img class="imgLeft"
 src="https://i.pinimg.com/originals/e7/27/86/e7278682e0e199f322cd1bde690a54de.jpg">
 </a>
@@ -39,7 +39,7 @@ The Rhodopes (/ˈrɒdəpiːz/; Bulgarian: Родопи, Rodopi; Greek: Ροδό�
 <hr>
 
 <br>
-<a href="https://lh3.googeusercontent.com/gIrY5lo2jkChyi7IIf_0i6kJRuV7TYyo5IKouII7HDyAqYLT1KpXXsig8Z3FggZiOZeN_IfmVy_R14EXqkT4Z0vSC8TnOu2FAAEiHqjuiAnTCdk6bdf3aPbiXtsqgEy1eJ03JE9MUwiFC-JFwH_ITNHqprla9LnbZe1rje_YhXHoaEqkxa5MbD29MVAHXrDhIjaUe94RHrY41v4WH_5F0Pn9p7D6PaGqlvioVexD0JO0PfaQRrkxHYP2OF-g0zo8-jypDn4-3WlYxvnLtyN5ua-NAa8oNje5AFzZNkaClaiNoEoYzFHDqxFSvmCG5iJLPF0wlSMwSUZBKxlFKpZxo-hm8YgmCVwIjcrWBHc_cIOCeYemrMYufTsiDyfewtcyIVtOkW65r882zuL64UwWO9EBkjyt8XWQJQ1ltw1ISCbDjpN-BQRyRz27XDavZ0dVYFFx5149TKrYCaQQgUKknNSIzCcSoKA4kZpRaO8wg9F_uhYvwi8qSAeWqpC57NWD9Y2qem0-RaHM741mIYv6QSwaiNmrMv4_XUEItgTJN4T-R-_krWZQlNrYg0fkmx4Oe6j6ywXO6Cut0IrHNKIFu6d8A6aeiz0gKz34_Vrv8w365YC16FKQW7taqh3A8xWIWBUTfUws587SMHi9BsyWTd6T5PM8XfXzbPd-33PL4lSf3sSfq9YW4PboILo4cdunVH2F3qvW4GXg6B7ESmRextiR8CpZ7gppmcJ2lroCzHfAn6nlNQ=w624-h888-no" > title="View Full Image">
+<a href="https://lh3.googeusercontent.com/gIrY5lo2jkChyi7IIf_0i6kJRuV7TYyo5IKouII7HDyAqYLT1KpXXsig8Z3FggZiOZeN_IfmVy_R14EXqkT4Z0vSC8TnOu2FAAEiHqjuiAnTCdk6bdf3aPbiXtsqgEy1eJ03JE9MUwiFC-JFwH_ITNHqprla9LnbZe1rje_YhXHoaEqkxa5MbD29MVAHXrDhIjaUe94RHrY41v4WH_5F0Pn9p7D6PaGqlvioVexD0JO0PfaQRrkxHYP2OF-g0zo8-jypDn4-3WlYxvnLtyN5ua-NAa8oNje5AFzZNkaClaiNoEoYzFHDqxFSvmCG5iJLPF0wlSMwSUZBKxlFKpZxo-hm8YgmCVwIjcrWBHc_cIOCeYemrMYufTsiDyfewtcyIVtOkW65r882zuL64UwWO9EBkjyt8XWQJQ1ltw1ISCbDjpN-BQRyRz27XDavZ0dVYFFx5149TKrYCaQQgUKknNSIzCcSoKA4kZpRaO8wg9F_uhYvwi8qSAeWqpC57NWD9Y2qem0-RaHM741mIYv6QSwaiNmrMv4_XUEItgTJN4T-R-_krWZQlNrYg0fkmx4Oe6j6ywXO6Cut0IrHNKIFu6d8A6aeiz0gKz34_Vrv8w365YC16FKQW7taqh3A8xWIWBUTfUws587SMHi9BsyWTd6T5PM8XfXzbPd-33PL4lSf3sSfq9YW4PboILo4cdunVH2F3qvW4GXg6B7ESmRextiR8CpZ7gppmcJ2lroCzHfAn6nlNQ=w624-h888-no" >
   <img class="imgLeft" src="https://lh3.googleusercontent.com/gIrY5lo2jkChyi7IIf_0i6kJRuV7TYyo5IKouII7HDyAqYLT1KpXXsig8Z3FggZiOZeN_IfmVy_R14EXqkT4Z0vSC8TnOu2FAAEiHqjuiAnTCdk6bdf3aPbiXtsqgEy1eJ03JE9MUwiFC-JFwH_ITNHqprla9LnbZe1rje_YhXHoaEqkxa5MbD29MVAHXrDhIjaUe94RHrY41v4WH_5F0Pn9p7D6PaGqlvioVexD0JO0PfaQRrkxHYP2OF-g0zo8-jypDn4-3WlYxvnLtyN5ua-NAa8oNje5AFzZNkaClaiNoEoYzFHDqxFSvmCG5iJLPF0wlSMwSUZBKxlFKpZxo-hm8YgmCVwIjcrWBHc_cIOCeYemrMYufTsiDyfewtcyIVtOkW65r882zuL64UwWO9EBkjyt8XWQJQ1ltw1ISCbDjpN-BQRyRz27XDavZ0dVYFFx5149TKrYCaQQgUKknNSIzCcSoKA4kZpRaO8wg9F_uhYvwi8qSAeWqpC57NWD9Y2qem0-RaHM741mIYv6QSwaiNmrMv4_XUEItgTJN4T-R-_krWZQlNrYg0fkmx4Oe6j6ywXO6Cut0IrHNKIFu6d8A6aeiz0gKz34_Vrv8w365YC16FKQW7taqh3A8xWIWBUTfUws587SMHi9BsyWTd6T5PM8XfXzbPd-33PL4lSf3sSfq9YW4PboILo4cdunVH2F3qvW4GXg6B7ESmRextiR8CpZ7gppmcJ2lroCzHfAn6nlNQ=w624-h888-no">
 </a>
 <br>
@@ -52,7 +52,7 @@ The name of the Rhodope mountains has a Thracian provenance[citation needed]. Rh
 <hr>
 <br>
 <a
-href="https://bulguides.com/wp-content/uploads/2015/12/PC300151.jpg" > title="View Full Image">
+href="https://bulguides.com/wp-content/uploads/2015/12/PC300151.jpg" >
 <img class="imgRight"
 src="https://bulguides.com/wp-content/uploads/2015/12/PC300151.jpg">
 </a>
