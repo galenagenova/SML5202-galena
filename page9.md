@@ -46,9 +46,9 @@ The mountains are associated with the mythic figure of Orpheus.
 <br>
 
 <a
-href="https://bulguides.com/wp-content/uploads/2015/12/PC300151.jpg" > title="View Full Image">
+href="https://www.voubs.bg/original/photo/fe9/Sunrise+over+the+Rhodope+Mountains%21_b415314e1e76f95d332c6b2249f07e25.jpg" > title="View Full Image">
 <img class="imgRight"
-src="https://bulguides.com/wp-content/uploads/2015/12/PC300151.jpg">
+src="https://www.voubs.bg/original/photo/fe9/Sunrise+over+the+Rhodope+Mountains%21_b415314e1e76f95d332c6b2249f07e25.jpg">
 </a>
 
 
