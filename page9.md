@@ -25,7 +25,6 @@ In 1881, three years after the Liberation of Bulgaria the architect Josef Schnit
 <br>
 <a href= "https://i.pinimg.com/originals/e7/27/86/e7278682e0e199f322cd1bde690a54de.jpg" >  
   <img class="imgLeft"
-src="https://i.pinimg.com/originals/e7/27/86/e7278682e0e199f322cd1bde690a54de.jpg">
 </a>
 <br>
 <hr>
