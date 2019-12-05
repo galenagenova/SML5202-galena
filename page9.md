@@ -4,7 +4,7 @@
 <h2> My home town </h2>
 
 <iframe
-  width=1280 height=720 frameborder="0" scrolling="no" src="https://screencast-o-matic.com/embed?sc=cqlfrOUKDq&v=5&ff=1" allowfullscreen="true"> </iframe>
+  src="https://screencast-o-matic.com/embed?sc=cqlfrOUKDq&v=5&ff=1" allowfullscreen="true"> </iframe>
   <br>
   <hr>
   <br>
